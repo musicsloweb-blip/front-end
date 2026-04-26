@@ -34,7 +34,7 @@
 
 ## 📫 Contato
 
-📧 Email: [seuemail@gmail.com](mailto:seuemail@gmail.com)
+📧 Email: (denielsilvestre96@gmail.com)
 💼 Em breve LinkedIn
 
 ---
